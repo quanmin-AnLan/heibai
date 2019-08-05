@@ -1,1 +1,1 @@
-[点击使用](https://quanmin-anlan.github.io/heibaizhaopian/)
+[点击使用](https://quanmin-anlan.github.io/heibai/)
